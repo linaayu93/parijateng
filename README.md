@@ -1,0 +1,2 @@
+# parijateng
+wisata jawa tengah
